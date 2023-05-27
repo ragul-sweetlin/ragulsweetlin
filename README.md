@@ -1,8 +1,7 @@
-IT ENGINEER 
-RAGUL SWEETLIN AJ 
+Technical Cloud Support and Testing Engineer 
 Mail ID:ragulsweetlin12@gmail.com 
 Phone No: 88700 89772 
-
+Website:https://ragul-sweetlin.github.io/ragulsweetlin/
 
 Objective: 
 To seek a challenging position in the Software industry that needs innovation, creativity, and dedication enables me to work in a challenging and fast-paced environment. 
